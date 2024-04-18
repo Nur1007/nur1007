@@ -1,4 +1,5 @@
 ### Hi there 👋
+![IMG_2673](https://github.com/Nur1007/nur1007/assets/105756809/28753df2-7d16-4509-b6dd-2e1594885a7b)
 
 <!--
 **Nur1007/nur1007** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
